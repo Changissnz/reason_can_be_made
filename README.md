@@ -1,7 +1,7 @@
 # Reason Can Be Made
 ## by Richard Pham 
 
-"There is never a reason needed to challenge, other than motive from the spirit of adversity". 
+There is never a reason needed to challenge, other than motive from the spirit of adversity. 
 ---------------------------------------------------------------------------------------------------------------------
 
 - Reason is human. That is the most accurate attribution. For a human being to say reason transcends the human mind is a big logical leap that cannot be proven, because the frame from this claim is still the human mind, despite the possibility for changes in perspective. Without acknowledgment from a human mind, natural phenomena would occur along a natural trajectory. With acknowledgment of the effect, the human mind serves to be the possible decider in human intervention of that natural phenomena. With adequate comprehension of the cause on top of that acknowledgment, a more effective resolution for that natural phenomena could possibly be achieved. 
